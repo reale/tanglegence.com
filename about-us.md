@@ -32,10 +32,3 @@ Registered Office: Ground Floor, 71 Lower Baggot Street, Dublin D02 P593, Irelan
 Registered Number: 672666
 
 Tax Reference Number: 3697756FH
-
-
-**Tanglegence UK Ltd** is incorporated in England.
-
-Registered Office: 160 Kemp House, City Road, London, United Kingdom, EC1V 2NX
-
-Registered Number: 12716971
